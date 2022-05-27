@@ -1,6 +1,7 @@
 ### Gilea Angelie Janina V. Fabros
 
 Junior at the University of the Philippines School of Economics
+0928 798 4388   gvfabros@up.edu.ph
 
 ****EDUCATION****
 
