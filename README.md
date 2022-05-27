@@ -22,7 +22,13 @@
  
     2005-2013
     Elementary
-    
+
+<h2><i><b>CERTIFICATION</b></i></h2>
+
+ <h3>National Certificate III in Bookkeeping</h3>
+ 	Philippine Technical Education and Skills Development Authority
+	ID: 18035403038097
+ 
 <h2><i><b>AFFILIATIONS</b></i></h2>
 
  <h3>UP Junior Marketing Association</h3>
@@ -38,7 +44,7 @@
     2020-present
     2022
     	Academic Affairs Committee Academic and Career Opportunities Officer
-	The Rundown 2022 Senatorial Debate External Relations Officer 
+		The Rundown 2022 Senatorial Debate External Relations Officer 
     2021
     	Membership Committee Team Head for Applicants
     	External Affairs Committee Brand Management Officer
