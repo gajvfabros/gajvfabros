@@ -2,9 +2,9 @@
 
 Junior at the University of the Philippines School of Economics
 
-<p class="nice"> 0928 798 4388   gvfabros@up.edu.ph </p>
+0928 798 4388   gvfabros@up.edu.ph
 
-****EDUCATION****
+<i>**EDUCATION**</i>
 
   **University of the Philippines Diliman**
   
