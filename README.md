@@ -36,5 +36,3 @@
 	• accounting
 	
 	• data analysis
-
--->
