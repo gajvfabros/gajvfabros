@@ -1,6 +1,6 @@
 ### Gilea Angelie Janina V. Fabros
 
-Here are some ideas to get you started:
+Junior at the University of the Philippines School of Economics
 
 ****EDUCATION****
 
